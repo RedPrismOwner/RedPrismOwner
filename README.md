@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @RedPrismOwner
+- 👀 I’m interested in learning python
+- 🌱 I’m currently learning puthon
+- 💞️ I’m looking to collaborate on redbotcogs
+- 📫 How to reach me: discord: lilRosieRaeV
+- 😄 Pronouns: She/Her
